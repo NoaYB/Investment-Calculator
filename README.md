@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/875c6b9e-4226-451d-b28c-45cfc1069512)
 
 Investment Calculator
 Overview
